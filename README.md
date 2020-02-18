@@ -1,0 +1,3 @@
+# Gsm-verkopen
+homo
+CP
